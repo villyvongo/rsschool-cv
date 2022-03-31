@@ -1,1 +1,1 @@
-https://villyvongo.github.io/rsschool-cv/cv
+https://villyvongo.github.io/rsschool-cv/
